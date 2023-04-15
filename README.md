@@ -1,3 +1,3 @@
 @Eliyahu-Yishaiovitz
-Software engineer Student | Seeking Internship Software engineer job | Java, C , C++ | student @Azrieli College of Engineering Jerusalem | 2024 Graduation
+Software engineer Student | Seeking Student Software engineer postion | Java, C , C++, java, html, css, js | student @Azrieli College of Engineering Jerusalem | 2024 Graduation
 
