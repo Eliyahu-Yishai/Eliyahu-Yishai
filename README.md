@@ -1,3 +1,3 @@
-@Eliyahu-Yishaiovitz
-Software Engineering Student | Java, C , C++, Java, Python | student @Azrieli College of Engineering Jerusalem | 2024 Graduation
+@Eliyahu-Yishai
+Software Engineer | JS\TS, React, React Native | Azrieli College of Engineering Jerusalem | 2024 Graduation
 
